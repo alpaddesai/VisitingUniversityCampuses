@@ -4,6 +4,6 @@
 
 ![image](EthicsandExcellence.png)
 
-![image](EthicsandExcellence.png)
+![image](USCopyrightCertificate.png)
 
 Additional details reference 
