@@ -1,6 +1,6 @@
 # Visiting University Campuses
 
-![image](VisitingCampuses.jpg)
+![image](VisitingCampusesI.jpg)
 
 ![image](EthicsandExcellence.png)
 
